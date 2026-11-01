@@ -1,5 +1,3 @@
-**A FOUNDATIONAL PAPER · v3.0** 
-
 # **Legibility Bias** 
 
 How Formal Institutions Reallocate Risk, Credential Value, Labor, Moral Liability, and Economic Surplus — and How the Population is Conditioned to be Sorted 
